@@ -1,4 +1,6 @@
-# Crisis Alert
+# Pearl Hacks 2020: Crisis Alert
+
+### [WINNER] Avalara: Best Hack to Simplify an Everyday Process
 
 [http://pearlhacks2020-269022.appspot.com/](http://pearlhacks2020-269022.appspot.com/)
 
